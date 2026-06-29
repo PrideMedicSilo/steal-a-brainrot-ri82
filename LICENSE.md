@@ -1,4 +1,4 @@
-
+best Scripts for steal a brainrot is the best steal a brainrot Script, featuring instant win and silent aim. Safe and powerful for all your needs.
 
 
 
